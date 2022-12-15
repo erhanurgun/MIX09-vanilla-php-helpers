@@ -1,0 +1,1 @@
+#### Bu sürekli olarak geliştirilecek bir proje olup, herhangi bir sorunuz olursa bana https://erhanurgun.com.tr adresinde ki sosyal medya hesaplarımdan veya https://urgun.com.tr adresinde ki iletişim formundan ulaşabilirsiniz.
